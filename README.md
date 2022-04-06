@@ -1,1 +1,1 @@
-# eugenrosca.info
+http://eugenrosca.info/
